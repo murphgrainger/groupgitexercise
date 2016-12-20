@@ -1,1 +1,2 @@
 # groupgitexercise
+OMG WORKING TOGETHER IS SO MUCH FUN
